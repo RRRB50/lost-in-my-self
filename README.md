@@ -9,6 +9,7 @@ You are the enemy of yourself, or maybe the friend? It's always the fight with y
 
 ***Warning: contains mentions of suicide and self-harm.***
 
+# <a href="https://artsomepasta.itch.io/lost-in-myself">Play online on itch.io</a> #
 # <a href="https://tinyurl.com/lostinmyself">Download</a> #
 
 **Play today for free**
