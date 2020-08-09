@@ -20,6 +20,8 @@ You are the enemy of yourself, or maybe the friend? It's always the fight with y
   * Sad vibes
   * Chonky Catto
 
+  **Hope you enjoy playing it! ^~^**
+
 <p align="center"><img src="https://imgur.com/KSPTZYr.jpg" height="250" /></p>
 
 
